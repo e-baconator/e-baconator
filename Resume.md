@@ -1,0 +1,4 @@
+Ellie Bacon
+
+Chatham High School - Class of 2024
+Northeastern University Class of 2028
